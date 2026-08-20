@@ -1,1 +1,1 @@
-# wissensprax.is
+# wissenspraxis
